@@ -1,2 +1,2 @@
-# sajidmarakkar.github.io
+# sajidmarakkar.github.io/kerala-tourism
  
